@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 
 --> 6 7 6 7 6 7 6 7 poooo
+
+
+adding a resume...
+Taniya Vaughns
+
+Northeastern First Year
