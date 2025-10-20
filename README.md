@@ -19,4 +19,6 @@ Here are some ideas to get you started:
 adding a resume...
 Taniya Vaughns
 
-Northeastern First Year
+Northeastern First Year 
+
+comp sci
